@@ -1,1 +1,0 @@
-# Master rohtak student details
